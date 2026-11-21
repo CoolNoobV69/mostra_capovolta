@@ -1,2 +1,2 @@
-# CoolNoobV69-mostra_capovolta
+# mostra_capovolta
 idk
